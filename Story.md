@@ -1,2 +1,2 @@
 One night the theives rob the people living the area. But the police officer was sure that there were no theives. But Noddy was not convinced by the Police Officer and decided to do the investigation on his own.
-One night Noddy's dog got stolen and Noddy was very worried and decided to stay awake all night.
+One night Noddy's dog got stolen and he was very worried and decided to stay awake all night. After waiting for some time he decided to check the area for any activity.
